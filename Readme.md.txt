@@ -1,1 +1,1 @@
-So complicated
+So complicated Eto pera kn life.
